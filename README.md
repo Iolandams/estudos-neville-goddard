@@ -14,11 +14,20 @@ O estudo foi desenvolvido para compreender os principais conceitos ensinados por
 
 # Fontes Utilizadas
 
-1. https://www.nevillegoddardbooks.com/
+FONTES DE VIDEO:
 
-2. https://coolwisdombooks.com/neville/neville-goddard-lectures-index/
+ https://www.youtube.com/watch?v=fsSC7aj_-Ow
+https://www.youtube.com/watch?v=y5aDGiyj6RY
+https://www.youtube.com/watch?v=XC0Xuvh21tk&list=PLUwbTtxGcuC9SD_CSR9MVjXVSHhNt_h9M
+https://www.youtube.com/watch?v=04ilhz6ROtk
+https://www.youtube.com/watch?v=lZ_yi9_kVXk
 
-3. https://www.law-of-attraction-haven.com/neville-goddard.html
+FONTES DE TEXTO:
+
+https://eusoumelo.medium.com/o-ensinamento-numero-um-de-neville-goddard-autoconceito-50a4477ecafd
+https://eusoumelo.medium.com/o-jeito-neville-goddard-de-manifestar-seus-desejos-em-4-passos-d3865bdc87ee
+https://maxwellakin.medium.com/neville-goddards-method-for-creating-reality-556d9354f559
+https://pt.scribd.com/document/772209361/As-10-Tecnicas-Mais-Poderosas-de-Manifestacao-de-Neville-Goddard
 
 ---
 
